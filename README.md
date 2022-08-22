@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Hillary-Nnadi
+- 👀 I’m interested in Wed development and Database
+- 🌱 I’m currently learning Web Development 
+- 💞️ I’m looking to collaborate on the above areas
+- 📫 How to reach me Gudlarry@gmail.com
+--->
